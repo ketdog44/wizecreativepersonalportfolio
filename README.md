@@ -1,4 +1,1 @@
 "# wizecreativepersonalportfolio" 
-"# wizecreativepersonalportfolio" 
-"# growall" 
-"# groall" 
